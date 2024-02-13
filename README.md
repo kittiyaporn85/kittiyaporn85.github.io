@@ -4,6 +4,6 @@
 
 สำหรับรายวิชา OOP
 
-![donwnload.banner](./banner.jpg)
+![donwnload.banner](GG.jpg)
 
 กิจติยาพร ศรีกุล
