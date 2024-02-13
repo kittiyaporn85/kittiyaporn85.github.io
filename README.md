@@ -1,4 +1,4 @@
-![banner](htttps://picsum.photos/800/250)
+![banner](https://img.pikbest.com/ai/illus_our/20230423/b3dcc7ffa4120417f7f0f2a3ab1175df.jpg!w700wp)
 
 #สมุดบันทึก
 
